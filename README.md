@@ -1,1 +1,1 @@
-# mazzzz.github.io
+# https://juspy.github.io/mazzzz.github.io/
